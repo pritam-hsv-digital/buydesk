@@ -1,4 +1,4 @@
-##### Hosted link - https://buydeskbypri.netlify.app/
+##### Hosted link - https://buydeskbypritam.netlify.app/
 
 
 
